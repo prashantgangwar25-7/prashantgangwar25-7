@@ -2,7 +2,7 @@
 
 I am Prashant Gangwar. 
 
-Currenlty a third year student pursuing Bachelor of Technology in Electronics & Communication Engieering from Maulana Azad National Institute of Technology, Bhopal.
+Currenlty a fourth year student pursuing Bachelor of Technology in Electronics & Communication Engieering from Maulana Azad National Institute of Technology, Bhopal.
 
 Always open to collaborating on projects and innovative/disruptive ideas. 
 
